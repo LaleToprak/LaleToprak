@@ -1,4 +1,1 @@
 # LaleToprak
-
-Hi People!
-
