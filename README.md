@@ -1,4 +1,4 @@
 # LaleToprak
 
-Hi Teacher!
+Hi People!
 
